@@ -15,7 +15,7 @@
 
 ## My Skills
 
-#### Main Stack:
+
 
 
 
